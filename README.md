@@ -3,5 +3,5 @@ I have worked in an individual proyect where I created a website that brings fro
 
 Please don't forget to get in touch with me through my different social media 
 
-linkedin.com/in/sergio-mendoza-33025113b
+linkedin.com/in/sergiomendoza-softwareengineer
 sergiomendozap96@gmail.com
